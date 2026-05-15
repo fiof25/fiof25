@@ -1,4 +1,4 @@
-## Hello, I'm Fiona, a designer who builds.
+## Hello there! I'm Fiona, a designer who builds.
 
 currently . ݁₊ ⊹ . ݁˖ . ݁
 - systems design engineering student @ uwaterloo
