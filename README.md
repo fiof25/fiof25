@@ -1,4 +1,4 @@
-## Hello there!
+## Hello there, I'm Fiona!
 
 currently . ݁₊ ⊹ . ݁˖ . ݁
 - systems design engineering student @ uwaterloo
